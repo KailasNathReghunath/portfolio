@@ -1,4 +1,4 @@
-# Kailas Nath Reghunath - GitHub Portfolio
+# Kailas Nath Reghunath
 
 **Email:** kailasnathr96@outlook.com  
 **Location:** 27 Blamey Avenue, Mill Park, VIC 3082  
